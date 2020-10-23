@@ -1,0 +1,1 @@
+campominato-esercitazione
